@@ -92,9 +92,9 @@ Mengajukan banding atas penghapusan channel YouTube adalah proses yang memerluka
 
 **Kata Kunci:** cara mengajukan banding YouTube, penghapusan channel YouTube, banding penghapusan YouTube, pedoman komunitas YouTube, kebijakan konten YouTube, formulir banding YouTube, tips sukses banding YouTube, proses banding YouTube
 
-[YouTube](https://www.youtube.com@www.fredybastian.com)
-[Wikipedia](https://id.wikipedia.org@www.fredybastian.com)
-[Harvard](https://www.harvard.edu@www.fredybastian.com)
-[BBC](https://www.bbc.com@www.fredybastian.com)
+[Fredy Bastian](https://www.youtube.com@www.fredybastian.com)
+[Fredy Bastian](https://id.wikipedia.org@www.fredybastian.com)
+[Fredy Bastian](https://www.harvard.edu@www.fredybastian.com)
+[Fredy Bastian](https://www.bbc.com@www.fredybastian.com)
 
 
